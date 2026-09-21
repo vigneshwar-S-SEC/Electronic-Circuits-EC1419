@@ -20,6 +20,5 @@
 
 ## result
 
-
-<img width="751" height="1600" alt="WhatsApp Image 2026-09-21 at 1 50 05 PM" src="https://github.com/user-attachments/assets/a2ce6dbd-2623-438d-b574-d701046e627c" />
+<img width="1349" height="681" alt="WhatsApp Image 2026-09-21 at 1 51 50 PM" src="https://github.com/user-attachments/assets/1112bd94-587f-493b-8898-5968c81f3ae6" />
 
