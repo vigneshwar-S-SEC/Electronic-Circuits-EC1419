@@ -29,6 +29,7 @@
 
 ## result
 
-<img width="2245" height="1684" alt="IMG20260921124421" src="https://github.com/user-attachments/assets/bc2ba0e3-fe96-4a9a-b3d3-7e5956bbf2c0" />
+<img width="1986" height="1490" alt="IMG20260921124616" src="https://github.com/user-attachments/assets/27ad86ca-ce87-4605-9473-02250eeb2d9c" />
+
 
 
